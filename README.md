@@ -1,2 +1,0 @@
-# tuyen.manhquang
-
